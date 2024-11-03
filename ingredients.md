@@ -1,4 +1,4 @@
-cuisseS de canard (6)
+cuisses de canard (6)
 Sel à confit 12g/kg
 3 tasses de semoule de blé dur ou farine tout usage
 4 œufs (extra gros)
