@@ -1,3 +1,4 @@
+Let's begin!
 cuisses de canard (6)
 Sel à confit 12g/kg
 3 tasses de semoule de blé dur ou farine tout usage
@@ -14,3 +15,4 @@ Eau
 250 ml de glace de canard
 Sel et poivre
 Feuille de basilic
+Enjoy my recipe!
